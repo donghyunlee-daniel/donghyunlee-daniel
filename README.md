@@ -1,6 +1,6 @@
 ### Hi, my name is DongHyun, and I go by Daniel👋
 
-I am currently looking for an opportunity as a software developer.
+I am currently looking for an opportunity as a programmer in various types.
 - 📫 How to reach me: ... d.lee77668@gmail.com
 
 
